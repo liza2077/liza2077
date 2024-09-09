@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @liza2077 
-- 👀 I’m interested in maths and childs 2-5 y.0.
+- 👀 I’m interested in maths 
 - 🌱 I’m currently learning pms
 - 💞️ I’m looking to collaborate on hatred
 - 📫 How to reach me rich
