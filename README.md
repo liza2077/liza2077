@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @liza2077 
+- 👋 Hi, I’m @liza2077
 - 👀 I’m interested in maths 
 - 🌱 I’m currently learning pms
 - 💞️ I’m looking to collaborate on hatred
